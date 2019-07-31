@@ -1,1 +1,0 @@
-##Hasil Belajar Abdullah Ubaid
